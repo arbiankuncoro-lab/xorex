@@ -1,1 +1,1 @@
-More information please contact me on twitter or telegram @arbiankuncoro
+For more information please contact me on twitter or telegram @arbiankuncoro
